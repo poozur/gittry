@@ -1,2 +1,2 @@
 this is my write file
-how convinient!
+how convinient haha!
